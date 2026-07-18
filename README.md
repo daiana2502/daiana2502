@@ -7,9 +7,7 @@
 
 -----
 
-:computer: **Software Engineer**  
-:eyeglasses: **Hardcore Geek (is geek still used?)**  
-:oncoming_automobile: **SpaceX, technology, and simulator fan**  
+:computer: graphic design  
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
